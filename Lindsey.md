@@ -1,0 +1,1 @@
+Lindsey Kuper was born and raised in Iowa and is one of the world's few remaining actual farmer's daughters.  [She](http://cs.indiana.edu/~lkuper) hangs out in limestone buildings and writes a lot of Scheme.  When she grows up, she wants to be a rock star.
